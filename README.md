@@ -1,4 +1,4 @@
 
-### تابع : [SYTHON](https://t.me/SAYTHONH) ###
+### تابع : [AFROTOO](https://t.me/UI_VM) ###
 
-![SYTHON](https://te.legra.ph/file/80ff0951e619289e99c79.jpg)
+![AFROTOO](https://telegra.ph/file/04b2f1f1c808dc49db35b.jpg)
